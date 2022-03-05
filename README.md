@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rabhajoydeep@gmail.com**
 
-- ⚡ Fun fact **I am racist**
+- ⚡ Fun fact **I am super racist**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
